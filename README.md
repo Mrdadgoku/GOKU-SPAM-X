@@ -13,7 +13,7 @@
 
 <h4 align="center">⚡️𝐓𝐇𝐄 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒⚡️</h4>
 
-<p align="center"><a href="https://t.me/GOKUxEDITION"><img src="https://telegra.ph/file/05522e13c97752efe5e75.png" width="400"></a></p>
+<p align="center"><a href="https://t.me/GOKUxEDITION"><img src="https://telegra.ph/file/9c5d0138224bd25f91d73.jpg" width="400"></a></p>
 
 
 > ⭐️ Thanks to everyone for using THIS STRANGER SPAM BOT, That is the greatest pleasure we have !
